@@ -1,7 +1,7 @@
 /**
    * Recode By ZxynOfc
    * Recode back oleh ArullOfc
-   * Contact Me on wa.me/6283149781035
+   * Contact Me on wa.me/6285755429621
    * Follow https://github.com/YosaArdn
    * Base Dika Ardnt
    * Jangan Diubah Author Nya
